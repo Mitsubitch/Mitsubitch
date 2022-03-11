@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mitsubitch but mainly called Siiri :]
+- 👀 I’m interested in osint, videogames and editing
+- 🌱 I’m currently learning everything in general... I started learning osint skills recently !
+- 💞️ I’m looking to collaborate on: geo-osint's and osint's ingeneral as those are mostly what I do (if you havent noticed yet lol)
+- 📫 How to reach me uhm discord ig lol :D Siiri#9280
